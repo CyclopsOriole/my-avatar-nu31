@@ -1,4 +1,4 @@
-
+my avatar Script secret is the best my avatar Script, featuring god mode and infinite resources. Safe and powerful for all your needs.
 
 
 
